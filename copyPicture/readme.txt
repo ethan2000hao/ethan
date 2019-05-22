@@ -1,0 +1,1 @@
+the code only can use to copy pictures~
